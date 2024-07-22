@@ -1,6 +1,5 @@
-# Introduction to Metaverse Domains
+# Introducing Metaverse Domain Names
 
-## Introduction to Metaverse Domains
 ![alt text](man-wearing-smart-glasses-touching-virtual-screen-futuristic-technology-digital-remix.jpg)
 
 ### What are the Domains of the Metaverse?
